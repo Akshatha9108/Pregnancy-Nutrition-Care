@@ -1,5 +1,4 @@
 # Pregnancy-Nutrition-Care
-I’m sorry to hear that! Let’s refine it with a more professional yet engaging touch similar to the Iris classification format:
 
 ---
 
